@@ -1,8 +1,9 @@
 ### Hi there 👋
 
-#### Looking for a place to spend Your holidays?
-#### Bored of unisteresting vacations?
-#### Want to discover the world and possibly learn something new?
+
+### Looking for a place to spend Your holidays?
+### Bored of unisteresting vacations?
+### Want to discover the world and possibly learn something new?
 
 ##### If Your answer to any of these questions was "YES" then Dacotra is what You need!!! 
 ##### We can provide You with attractive offers with an amazing price! 

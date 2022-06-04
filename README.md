@@ -6,8 +6,8 @@ _____________________________________________
 #### Want to discover the world and possibly learn something new?
 _______________________________________________
 
-##### If Your answer to any of these questions was *"YES"* then ***Dacotra*** is what You need!!! 
-##### We can provide You with attractive offers with an amazing price! 
+#### If Your answer to any of these questions was *"YES"* then ***Dacotra*** is what You need!!! 
+#### We can provide You with attractive offers with an amazing price! 
 _______________________________________________
 
 #### And that's not all of it! - not only our trips are interesting but they also come with a great price AND a high discount!
